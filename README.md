@@ -1,0 +1,2 @@
+# TheCodeLIfeLogo
+Our school logo
